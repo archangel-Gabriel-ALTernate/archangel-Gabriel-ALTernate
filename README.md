@@ -21,7 +21,7 @@ He/Him.
 - analog horror
 - FOOD
 - pony town
-- art Stuf
+- art StufFs
 
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg" width="300">
