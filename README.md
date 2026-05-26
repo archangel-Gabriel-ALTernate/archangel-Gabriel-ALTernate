@@ -27,7 +27,7 @@ He/Him.
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg" width="300">
 
   ## PROFILE
-<i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel I don't necessarily kin him but you could say that please do not interact if you are a pedophile Dark Shipper or any of that negative stuff I also don't like people coming up to me that are overly religious and schooling me about things it makes me uncomfortable so please do not interact if you do any of that Thank you and I hope you love my cosplay in ponytown!!!</i>
+<i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel! I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!💋
 ---
 <p align="center">
   <img src=https:https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg width="60"/> 
