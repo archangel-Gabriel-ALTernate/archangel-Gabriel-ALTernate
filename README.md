@@ -9,7 +9,7 @@
 He/Him.
   
   about me ..!
-  angelcore • pony town • horror • Bipolor Adhd Schizophrenia Whew bud pick a struggle1
+  angelcore • pony town • horror • Bipolor Adhd Schizophrenia Whew bud pick a struggle!
 <p align="center">
   <img src=https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/6d7773b8aee07a78f5268d15620daa2e.jpg width="400">
 </p>
@@ -19,7 +19,7 @@ He/Him.
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/kate-wings.gif" width="200">
 ## INTERESTS
 - analog horror
-- old web design
+- FOOD
 - pony town
 - art Stuf
 
