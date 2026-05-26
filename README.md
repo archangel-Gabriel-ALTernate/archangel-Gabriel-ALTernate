@@ -1,109 +1,21 @@
-!DOCTYPE html>
-<html>
-<head>
-<title>{ARCHANGEL_GABRIEL}</title>
-background-color: white;
-<style>grainy
-body {large}
-    background-color: white;
-    color: gold;
-    font-family: cursive;
-    text-align: left;
-    background-image: url('https://i.pinimg.com/736x/0b/44/d4/0b44d412b40043492e806a849dc12f80.jpg');
-    background-size: cover;
-    overflow-x: hidden;
-}
+# ✧ ARCHANGEL GABRIEL ✧
 
-.container {
-    margin: 80px auto;
-    width: 600px;
-    background: rgba(0,0,0,0.7);
-    border: 1px solid white;
-    padding: 25px;
-    box-shadow: 0 0 20px red;
-}
+> be not afraid~~
 
-h1 {
-    color: #fff4c2;
-    letter-spacing: 5px;
-    font-size: 40px;
-}
+angelcore • pony town • horror • old web aesthetics
 
-.small {
-    opacity: 0.7;
-    font-size: 12px;
-    margin-top: 20px;
-}
+---
 
-img {
-    width: 250px;
-    border: 2px solid white;
-}
+## INTERESTS
+- analog horror
+- old web design
+- pony town
+- art Stuffff
 
-a {
-    color: #ffd700;
-}
-
-.glow {
-    animation: glow 2s infinite alternate;
-}
-
-@keyframes glow {
-    from {
-        text-shadow: 0 0 5px gold;
-    }
-    to {
-        text-shadow: 0 0 20px white;
-    }
-}
-</style>
-</head>
-
-<body>
-
-<div class="container">
-
-<h1 class="glow">ARCHANGEL GABRIEL~</h1>
-
-<img src="https://i.imgur.com/2Qy6G6v.gif">
-
-<p>
+## PROFILE
 messenger . observer . imitation
-</p>
 
-<p>
-be not afraid
-</p>
+---
 
-<hr>
-
-<p>
-pony town! DNI...-Weridos Religious people that will try to tell me what to and what to not believe! im a very nice person in game don,t be afrid to say hi!
-</p>
-
-<p class="small">
-NOTHING IS WORTH THE RISK...
-</p>
-
-</div>
-
-</body>
-</html><img src="https://i.pinimg.com/736x/cc/79/b1/cc79b1fb609f8177469198f51663acee.jpg width="300">
-<p>pony town player • angelcore • horror fan</p>
-
-<h2>INTERESTS</h2>
-<p>TMC • old web • analog horror</p>
-<!--
-**archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌐 My Page:
+https://YOURNAME.github.io/archangel-Gabriel-ALternate/
