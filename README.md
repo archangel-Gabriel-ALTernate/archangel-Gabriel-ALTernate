@@ -17,5 +17,4 @@ messenger . observer . imitation
 
 ---
 
-🌐 My Page:
-https://YOURNAME.github.io/archangel-Gabriel-ALternate/
+
