@@ -49,7 +49,7 @@ He/Him.
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/6d47fc8dccf14cce1a2c7440766fabbf.jpg" width="60">
 <p align="center">
-<3
+You should smile more twin it looks good on you
 </p>
 Check this out~...<p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/banner.gif" width="300"> <p align="center">
