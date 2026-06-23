@@ -24,9 +24,11 @@ He/Him.
 - art StufFs
 <p align="center">
   <br>
-  <b>a reminder if you're struggling today you are loved and you :</b><br>
-  you are entirely up to the task of healing, growing, and making it through. 
-  the world needs your light. take care of yourself tonight.
+  <b>a reminder if you're struggling today you are loved and :</b><br>
+  you are entirely up to the task of growing, and making it through. 
+  the world needs your light One day, you will look back on the things you are currently worrying about and realize you overcame them all. You will be sitting in a room you love, listening to a song you love, surrounded by people who love you, and you'll be so glad you kept going i love you <3 <p align="center">
+  <br>
+</p>
   <br>
 </p>
 <p align="center">
