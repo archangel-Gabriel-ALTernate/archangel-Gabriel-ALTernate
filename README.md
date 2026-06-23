@@ -22,7 +22,13 @@ He/Him.
 - FOOD
 - pony town
 - art StufFs
-
+<p align="center">
+  <br>
+  <b>a reminder if you're struggling today you are loved and you :</b><br>
+  you are entirely up to the task of healing, growing, and making it through. 
+  the world needs your light. take care of yourself tonight.
+  <br>
+</p>
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg" width="300">
 
@@ -41,7 +47,7 @@ He/Him.
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/6d47fc8dccf14cce1a2c7440766fabbf.jpg" width="60">
 <p align="center">
-  messenger.. • observer! • Ooh Laa laa!
+<3
 </p>
 Check this out~...<p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/banner.gif" width="300"> <p align="center">
