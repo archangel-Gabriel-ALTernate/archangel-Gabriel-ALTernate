@@ -34,15 +34,15 @@ He/Him.
   <br>
 </p>
 <p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg" width="300">
+  <img src=cc840ac4a479311cb610a84a0c87ebac.jpg width="300">
 
   ## PROFILE
-<i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel! I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!💋
+<i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel!( oR peter) I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!
 ---
 <p align="center">
-  <img src=https:https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/57b7003697aa8732e549506d9933b774.jpg width="60"/> 
+  <img src=d09686ef322191230c498c40cd5364b5.jpg width="60"/> 
   <p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/0360716006e5e46b139864b795fff9ef.jpg" width="300">
+  <img src=3f8ad377af346eb1cffb49e623a5c49f.jpg width="300">
 </p>
 <p align="left">
   <img src=https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/eyeball.gif width="300">
