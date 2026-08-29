@@ -36,7 +36,7 @@ $\color{RoyalBlue}{\text{you are currently worrying about and realize you overca
  $\color{RoyalBlue}{\text{surrounded by people who love you, and you'll be so glad you kept going i}}$
 $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  °    ✦    .    🕷️    .    ✦    .°  }}$
   <p align="center">
-  <img src=Screenshot_2026-08-29_142523-removebg-preview.png width="400">
+  <img src=Screenshot_2026-08-29_142523-removebg-preview.png width="900">
   <br>
 </p>
   <br>
