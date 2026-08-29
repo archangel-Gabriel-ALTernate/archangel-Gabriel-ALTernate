@@ -1,6 +1,6 @@
 
 <p align="left">
-  <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300"> 
+  <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">         "WELCOME TO THE BEST GIT EVERRR heh..."
   
 <p align="right">
   <img src=d9daa32218e35df5601a4512e51a7949.jpg width="300"> 
