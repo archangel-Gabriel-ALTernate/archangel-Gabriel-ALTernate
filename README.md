@@ -17,11 +17,15 @@ He/Him.
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
 $\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
-## INTERESTS
-- analog horror
-- FOOD
-- pony town
-- MARVELLLLLL°    ✦    .   🕷️   .    ✦    .°  }}$
+$\color{Gold}{\text{## INTERESTS}}$
+
+$\color{Gold}{\text{- analog horror}}$
+
+$\color{Gold}{\text{- FOOD}}$
+
+$\color{Gold}{\text{- pony town}}$
+
+$\color{Gold}{\text{- MARVELLLLLL  °    ✦    .    🕷️    .    ✦    .°  }}$
 <p align="center">
   <br>
  $\color{RoyalBlue}{\text{"a reminder if you're struggling today you are loved :}}$
