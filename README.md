@@ -52,7 +52,7 @@ $\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes
 $\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
 ---
 <p align="center">
-  <img src=d09686ef322191230c498c40cd5364b5.jpg width="60"/> 
+  <img src=Screenshot_2026-08-29_143000-removebg-preview(1).png width="300"/> 
   <p align="center">
   <img src=3f8ad377af346eb1cffb49e623a5c49f.jpg width="300">
 </p>
