@@ -10,7 +10,7 @@ He/Him.
 
    $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
-  <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
+  <img src=Screenshot_2026-08-29_142955-removebg-preview(1).png width="400">
 </p>
 ------🕷️-------------🕷️---------------🕸️-------------🕸️---------🕷️--------🕷️----------🕸️-----------🕸️--------------🕷️-----
 ---🕷️------🕸️-------🕸️--------✨--°    ✦    .   🕷️   .    ✦    .°  }}$
