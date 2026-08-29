@@ -17,7 +17,7 @@ He/Him.
 ---🕷️------🕸️-------🕸️--------✨--°    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
-  $\color{RoyalBlue}{/text}.      Daily Bugle Photographer  `  NYC  }}$°    ✦    .   🕷️   .    ✦    .°  }}$
+$\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
 ## INTERESTS
 - analog horror
 - FOOD
