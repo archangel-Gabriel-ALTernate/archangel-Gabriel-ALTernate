@@ -29,8 +29,7 @@ $\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
 $\color{RoyalBlue}{\text{the world needs your light One day, you will look back on the things}}$
 $\color{RoyalBlue}{\text{you are currently worrying about and realize you overcame them all. You}}$
  $\color{RoyalBlue}{\text{surrounded by people who love you, and you'll be so glad you kept going i}}$
-
-                             $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  °    ✦    .    🕷️    .    ✦    .°  }}$
+$\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  °    ✦    .    🕷️    .    ✦    .°  }}$
   <p align="center">
   <img src=bb20a0f83d3851923c639d719fc38700.jpg width="400">
   <br>
