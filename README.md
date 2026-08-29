@@ -1,7 +1,8 @@
 <p align="center">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">
 
-# ✧ 𝓐𝓻𝓬𝓱𝓪𝓷𝓰𝓮𝓵 𝓖𝓪𝓫𝓻𝓲𝓮𝓵 ✧
+<p align="center">
+  <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
 
 > be not afraid~~
 <p align="center">
