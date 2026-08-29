@@ -66,9 +66,9 @@ Check this out~...<p align="center">
   ─── ✦ ───
 
 <p align="center">
-  <img src=file:https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/eyeball.gif width="300"/>
+  <img src=spiderman.gif 300"/>
 </p>
-"I FOOLED THEM"
+"Pizzas Here!" :D
 <p align="center">
   <img src=f713c24a46110e3a564b0f414c74f25b.jpg width="400">
   <p align="center">
