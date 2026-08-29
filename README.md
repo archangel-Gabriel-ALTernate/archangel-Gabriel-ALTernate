@@ -9,7 +9,7 @@ $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
   
-  about me ..!Spider core 
+  $\color{Coral}{\text{﹒about me ..!Spider core 
   Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle!
 <p align="center">
   <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
