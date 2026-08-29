@@ -11,12 +11,12 @@ He/Him.
   about me ..!
   angelcore • pony town • horror • Bipolor Adhd Schizophrenia Whew bud pick a struggle!
 <p align="center">
-  <img src=https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/6d7773b8aee07a78f5268d15620daa2e.jpg width="400">
+  <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
 </p>
 ------🪽-------------🪽---------------🪽-------------🪽---------🪽--------🪽----------🪽-----------🪽--------------🪽-----
 ---✨------✨-------✨--------✨--
 <p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/kate-wings.gif" width="200">
+  <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
 ## INTERESTS
 - analog horror
 - FOOD
@@ -26,7 +26,9 @@ He/Him.
   <br>
   <b>a reminder if you're struggling today you are loved :</b><br>
   you are entirely up to the task of growing, and making it through. 
-  the world needs your light One day, you will look back on the things you are currently worrying about and realize you overcame them all. You will be sitting in a room you love, listening to a song you love, surrounded by people who love you, and you'll be so glad you kept going i love you <3 <p align="center">
+  the world needs your light One day, you will look back on the things you are currently worrying about and realize you overcame them all. You will be sitting in a room you love, listening to a song you love, surrounded by people who love you, and you'll be so glad you kept going i love you REMEMBER each day is a BRAND NEW DAY! <3 <p align="center">\
+  <p align="center">
+  <img src=bb20a0f83d3851923c639d719fc38700.jpg width="400">
   <br>
 </p>
   <br>
