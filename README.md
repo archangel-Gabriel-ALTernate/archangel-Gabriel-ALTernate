@@ -46,11 +46,11 @@ He/Him.
   <img src=3f8ad377af346eb1cffb49e623a5c49f.jpg width="300">
 </p>
 <p align="left">
-  <img src=https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/eyeball.gif width="300">
+  <img src=1626326304_491851_gif-url.gif width="300">
 </p>
 <h1 align="center">✧ Archangel Gabriel ✧</h1>
 <p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/6d47fc8dccf14cce1a2c7440766fabbf.jpg" width="60">
+  <img src=32a763e3dd01ea405c49136b4d5123d3.jpg  width="60">
 <p align="center">
 You should smile more twin it looks good on you
 </p>
