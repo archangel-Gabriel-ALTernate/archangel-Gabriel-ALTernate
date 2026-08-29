@@ -4,7 +4,7 @@
 <p align="center">
   <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
 
-> be not afraid~~
+> "No matter how dark it is tomorrow will always be a brand new day."
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
