@@ -1,4 +1,4 @@
-$\color{Crimson}{\text{.      🕸️  Peter Parker  `  Spider-Man  `}}$
+$\color{Crimson}{text{.      🕸️  Peter Parker  `  Spider-Man  `}}$
 <p align="left">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">   
 <p align="center">
@@ -17,7 +17,7 @@ He/Him.
 ---🕷️------🕸️-------🕸️--------✨--
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
-  $\color{RoyalBlue}{\text{.      Daily Bugle Photographer  `  NYC  }}$
+  $\color{RoyalBlue}{text{.      Daily Bugle Photographer  `  NYC  }}$
 ## INTERESTS
 - analog horror
 - FOOD
@@ -37,6 +37,7 @@ He/Him.
 </p>
 <p align="center">
   <img src=cc840ac4a479311cb610a84a0c87ebac.jpg width="300">
+  
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
 <i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel!( oR peter) I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!
