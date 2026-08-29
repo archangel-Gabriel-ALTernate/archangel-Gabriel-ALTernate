@@ -49,7 +49,7 @@ He/Him.
 <p align="left">
   <img src=1626326304_491851_gif-url.gif width="300">
 </p>
-<h1 align="center">✧ Archangel Gabriel ✧</h1>
+<h1 align="center">✧PETER parker ✧</h1>
 <p align="center">
   <img src=32a763e3dd01ea405c49136b4d5123d3.jpg  width="60">
 <p align="center">
@@ -59,7 +59,7 @@ Check this out~...<p align="center">
   <img src=3359827d1e802c5a677e76663d48f39e.jpg width="300"> <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/08eeeb4b1220ac4bea9a3dcbb388af04.jpg" width="200">
 -__---_..Here are some of my stupid interests AKA thinks you'll probably see me cosplaying in Ponytown
-. The Mandela catalog forsaken Villainous Big history fans such as Napoleonic George Washington (My husband) The House of Puso undercover animators on Tiktok Roblox developers Ultra Kill Luca (the movie) CASEOHHHH.. :P
+. The Mandela catalog forsaken Villainous Big history fans such as Napoleonic George Washington (My husband) The House of Puso undercover animators on Tiktok Roblox developers Ultra Kill Luca (the movie) CASEOHHHH MARVEL, SPIDERMAN, X-MEN, DEADPOOL.. :P
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/eye.gif" width="300">
 
