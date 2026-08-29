@@ -1,8 +1,7 @@
 <p align="center">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">
 
-src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
-
+# ✧ 𝓐𝓻𝓬𝓱𝓪𝓷𝓰𝓮𝓵 𝓖𝓪𝓫𝓻𝓲𝓮𝓵 ✧
 
 > be not afraid~~
 <p align="center">
@@ -41,7 +40,7 @@ He/Him.
 <i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel!( oR peter) I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!
 ---
 <p align="center">
-  <img src=d09686ef322191230c498c40cd5364b5.jpg width="500"/> 
+  <img src=d09686ef322191230c498c40cd5364b5.jpg width="60"/> 
   <p align="center">
   <img src=3f8ad377af346eb1cffb49e623a5c49f.jpg width="300">
 </p>
