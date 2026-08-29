@@ -9,20 +9,20 @@
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
   
-  about me ..!
-  angelcore • pony town • horror • Bipolor Adhd Schizophrenia Whew bud pick a struggle!
+  about me ..!Spider core 
+  Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle!
 <p align="center">
   <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
 </p>
-------🪽-------------🪽---------------🪽-------------🪽---------🪽--------🪽----------🪽-----------🪽--------------🪽-----
----✨------✨-------✨--------✨--
+------🕷️-------------🕷️---------------🕸️-------------🕸️---------🕷️--------🕷️----------🕸️-----------🕸️--------------🕷️-----
+---🕷️------🕸️-------🕸️--------✨--
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
 ## INTERESTS
 - analog horror
 - FOOD
 - pony town
-- art StufFs
+- MARVELLLLLL
 <p align="center">
   <br>
   <b>a reminder if you're struggling today you are loved :</b><br>
