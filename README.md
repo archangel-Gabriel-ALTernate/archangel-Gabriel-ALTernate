@@ -3,8 +3,7 @@
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">   
 <p align="center">
   <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
-
-> "No matter how dark it is tomorrow will always be a brand new day." °    ✦    .   🕷️   .    ✦    .°  }}$
+ 
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
@@ -28,7 +27,7 @@ $\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
   <b>a reminder if you're struggling today you are loved :</b><br>
   you are entirely up to the task of growing, and making it through. 
   the world needs your light One day, you will look back on the things you are currently worrying about and realize you overcame them all. You will be sitting in a room you love, listening to a song you love, surrounded by people who love you, and you'll be so glad you kept going i love you REMEMBER each day is a BRAND NEW DAY! <3 <p align="center">\
-$\color{Gold}{\text{.   great power = great responsibility  }}$
+$\color{Crimson}{\text{"No matter how dark it is tomorrow will always be a brand new day."  °    ✦    .    🕷️    .    ✦    .°  }}$
   <p align="center">
   <img src=bb20a0f83d3851923c639d719fc38700.jpg width="400">
   <br>
