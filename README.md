@@ -42,7 +42,7 @@ $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  
   <br>
 </p>
 <p align="center">
-  <img src=cc840ac4a479311cb610a84a0c87ebac.jpg width="300">
+  <img src=Screenshot_2026-08-29_142523-removebg-preview.png width="300">
   
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
