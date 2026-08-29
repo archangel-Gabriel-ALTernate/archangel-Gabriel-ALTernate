@@ -9,7 +9,7 @@ $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
 
-   $\color{Coral}{\text{﹒      𝐼`𝑚 𝑇𝑟𝑎𝑓𝑎𝑟𝑒𝑡 𝑜𝑟 𝑇𝑎𝑓𝑢 ◝  𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$ 
+   $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle!
 <p align="center">
   <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
 </p>
