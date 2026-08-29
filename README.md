@@ -1,4 +1,4 @@
-$\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$ 
+$\color{Crimson}{\text{.      🕸️  Peter Parker  `  Spider-Man  `}}$
 <p align="left">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">   
 <p align="center">
@@ -17,6 +17,7 @@ He/Him.
 ---🕷️------🕸️-------🕸️--------✨--
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
+  $\color{RoyalBlue}{\text{.      Daily Bugle Photographer  `  NYC  }}$
 ## INTERESTS
 - analog horror
 - FOOD
@@ -27,6 +28,7 @@ He/Him.
   <b>a reminder if you're struggling today you are loved :</b><br>
   you are entirely up to the task of growing, and making it through. 
   the world needs your light One day, you will look back on the things you are currently worrying about and realize you overcame them all. You will be sitting in a room you love, listening to a song you love, surrounded by people who love you, and you'll be so glad you kept going i love you REMEMBER each day is a BRAND NEW DAY! <3 <p align="center">\
+    $\color{Gold}{\text{.      great power = great responsibility  }}$
   <p align="center">
   <img src=bb20a0f83d3851923c639d719fc38700.jpg width="400">
   <br>
@@ -35,7 +37,7 @@ He/Him.
 </p>
 <p align="center">
   <img src=cc840ac4a479311cb610a84a0c87ebac.jpg width="300">
-
+$\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
 <i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel!( oR peter) I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!
 ---
