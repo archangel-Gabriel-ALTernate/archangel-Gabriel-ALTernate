@@ -1,7 +1,8 @@
 <p align="center">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">
 
-# ✧ 𝓐𝓻𝓬𝓱𝓪𝓷𝓰𝓮𝓵 𝓖𝓪𝓫𝓻𝓲𝓮𝓵 ✧
+src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
+
 
 > be not afraid~~
 <p align="center">
