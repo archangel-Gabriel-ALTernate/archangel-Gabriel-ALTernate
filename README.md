@@ -39,7 +39,10 @@ $\color{Crimson}{\text{ "No matter how dark it is tomorrow will always be a bran
   
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
-<i> WHY HELLO! Nice to meet you I'm Gabe or Gabriel!( oR peter) I'm not good with role plays But I'm always comfortable if someone's up for one! I love cuddles and I love compliments on my cosplay It makes my day thanks for checking out my page have a great day!
+$\color{Crimson}{\text{WHY HELLO! Nice to meet you I'm Gabe or Gabriel! (or peter)}}$
+$\color{RoyalBlue}{\text{I'm not good with role plays But I'm always comfortable if someone's up for one!}}$
+$\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes my day}}$
+$\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
 ---
 <p align="center">
   <img src=d09686ef322191230c498c40cd5364b5.jpg width="60"/> 
