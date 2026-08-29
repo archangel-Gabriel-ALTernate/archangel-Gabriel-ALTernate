@@ -1,9 +1,6 @@
 $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$ 
 <p align="left">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">   
-  
-<p align="right">
-  <img src=d9daa32218e35df5601a4512e51a7949.jpg width="300"> 
 <p align="center">
   <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
 
