@@ -24,17 +24,11 @@ $\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
 - MARVELLLLLL°    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <br>
-                               $\color{RoyalBlue}{\text{"a reminder if you're struggling today you are loved :}}$
-
-                               $\color{RoyalBlue}{\text{you are entirely up to the task of growing, and making it through.}}$
-
-                                $\color{RoyalBlue}{\text{the world needs your light One day, you will look back on the things}}$
-
-                              $\color{RoyalBlue}{\text{you are currently worrying about and realize you overcame them all. You}}$
-
-                             $\color{RoyalBlue}{\text{will be sitting in a room you love, listening to a song you love,}}$
-              
-                             $\color{RoyalBlue}{\text{surrounded by people who love you, and you'll be so glad you kept going i}}$
+ $\color{RoyalBlue}{\text{"a reminder if you're struggling today you are loved :}}$
+ $\color{RoyalBlue}{\text{you are entirely up to the task of growing, and making it through.}}$
+$\color{RoyalBlue}{\text{the world needs your light One day, you will look back on the things}}$
+$\color{RoyalBlue}{\text{you are currently worrying about and realize you overcame them all. You}}$
+ $\color{RoyalBlue}{\text{surrounded by people who love you, and you'll be so glad you kept going i}}$
 
                              $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  °    ✦    .    🕷️    .    ✦    .°  }}$
   <p align="center">
