@@ -1,6 +1,6 @@
  🕸️  Peter Parker  `  Spider-Man  `
 <p align="left">
-  <img src= canvas.png width="300">   
+  <img src= canvas.png width="500">   
 <p align="center">
   <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
  
