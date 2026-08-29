@@ -55,7 +55,7 @@ He/Him.
 You should smile more twin it looks good on you
 </p>
 Check this out~...<p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/banner.gif" width="300"> <p align="center">
+  <img src=3359827d1e802c5a677e76663d48f39e.jpg width="300"> <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/08eeeb4b1220ac4bea9a3dcbb388af04.jpg" width="200">
 -__---_..Here are some of my stupid interests AKA thinks you'll probably see me cosplaying in Ponytown
 . The Mandela catalog forsaken Villainous Big history fans such as Napoleonic George Washington (My husband) The House of Puso undercover animators on Tiktok Roblox developers Ultra Kill Luca (the movie) CASEOHHHH.. :P
@@ -70,3 +70,8 @@ Check this out~...<p align="center">
 "I FOOLED THEM"
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/3307c0f6f4e57d63e34d0559b5065374.jpg" width="400">
+  <p align="center">
+  <img src=5f14b56c146444794a19490e87ee1920.jpg width="200"><p align="right">
+  <img src=634f00270887dddb74423135c31ddf02.jpg width="100"><p align="left">
+  <img src=d7686fbb631dd9f1e8998480f07505b5.jpg width="200"><p align="center">
+  <img src=c201f76424b390c6a1699d4ee593ecf3.jpg width="400">
