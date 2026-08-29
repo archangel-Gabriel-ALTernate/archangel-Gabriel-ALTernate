@@ -1,4 +1,4 @@
-  <img src=c82c388b80f667d16a3221ced62cfc60.jpg width="400">
+
 <p align="left">
   <img src="76549ce8cd594a2b4b203e1106942618.jpg" width="300">
 
