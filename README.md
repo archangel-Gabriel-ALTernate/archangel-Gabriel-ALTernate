@@ -4,25 +4,25 @@
 <p align="center">
   <img src= a8dab7a4a91591be9dda184b09024709.jpg width="300">
 
-> "No matter how dark it is tomorrow will always be a brand new day."
+> "No matter how dark it is tomorrow will always be a brand new day." °    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
 He/Him.
 
-   $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle!
+   $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <img src=5886cda3111328a95ada07ce923ea288.jpg width="400">
 </p>
 ------🕷️-------------🕷️---------------🕸️-------------🕸️---------🕷️--------🕷️----------🕸️-----------🕸️--------------🕷️-----
----🕷️------🕸️-------🕸️--------✨--
+---🕷️------🕸️-------🕸️--------✨--°    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
-  $\color{RoyalBlue}{text{.      Daily Bugle Photographer  `  NYC  }}$
+  $\color{RoyalBlue}{text{.      Daily Bugle Photographer  `  NYC  }}$°    ✦    .   🕷️   .    ✦    .°  }}$
 ## INTERESTS
 - analog horror
 - FOOD
 - pony town
-- MARVELLLLLL
+- MARVELLLLLL°    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
   <br>
   <b>a reminder if you're struggling today you are loved :</b><br>
