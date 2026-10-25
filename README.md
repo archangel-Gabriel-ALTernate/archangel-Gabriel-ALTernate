@@ -46,7 +46,7 @@ $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
 $\color{Gold}{\text{WHY HELLO! Nice to meet you I'm Gabe or Gabriel! (or peter)}}$
-$\color{RoyalBlue}{\text{I'm not good with role plays But I'm always comfortable if someone's up for one!}}$
+$\color{RoyalBlue}{\text{Im a Model and i live in NYC i go to NYU Tisch for college for musical theater!}}$
 $\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes my day}}$
 $\color{LightYellow}{\text{thanks for checking out my page have a great day!}}$
 ---
@@ -55,9 +55,8 @@ $\color{LightYellow}{\text{thanks for checking out my page have a great day!}}$
  
 </p>
 <p align="left">
-  <img src=1626326304_491851_gif-url.gif width="300">
 </p>
-<h1 align="center">✧PETER parker ✧</h1>
+<h1 align="center">✧DUSEKKAR ✧</h1>
 <p align="center">
   <img src= width="60">
 <p align="center">
