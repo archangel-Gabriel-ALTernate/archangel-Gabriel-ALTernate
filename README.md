@@ -5,7 +5,7 @@
   <img src= canvas.png width="500">
  
 <p align="center">
-  <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
+  <img src="34741c72d34a0d6ada3e9d334129d07f.jpg" width="80">
 He/Him.
 
    $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .   🕷️   .    ✦    .°  }}$
