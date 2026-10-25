@@ -8,15 +8,15 @@
   <img src="34741c72d34a0d6ada3e9d334129d07f.jpg" width="400">
 
 
-   $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .   🕷️   .    ✦    .°  }}$
+   $\color{Blue}{\text{﹒      about me ..! DUSEKKARRRR • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .      .    ✦    .°  }}$
 <p align="center">
   <img src=Screenshot_2026-08-29_142955-removebg-preview(1).png width="400">
 </p>
-------🕷️-------------🕷️---------------🕸️-------------🕸️---------🕷️--------🕷️----------🕸️-----------🕸️--------------🕷️-----
----🕷️------🕸️-------🕸️--------✨--°    ✦    .   🕷️   .    ✦    .°  }}$
+------------------------------------------------------------------------------------------------------
+------------------------✨--°    ✦    .      .    ✦    .°  }}$
 <p align="center">
   <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
-$\color{RoyalBlue}{\text{.   Daily Bugle Photographer  `  NYC  }}$
+$\color{Yellow}{\text{.   Daily Bugle Photographer  `  NYC  }}$
 
  $\color{Gold}{\text{ INTERESTS}}$
 
