@@ -16,7 +16,7 @@
 ------------------------✨--°    ✦    .      .    ✦    .°  }}$
 <p align="center">
   <img src= FGHFHGFGH.png width="200">
-$\color{Yellow}{\text{.  model  `  NYC  }}$
+$\color{ Light Yellow}{\text{  Model...  `  NYC  }}$
 
  $\color{Gold}{\text{ INTERESTS}}$
 
