@@ -5,8 +5,8 @@
   <img src= canvas.png width="500">
  
 <p align="center">
-  <img src="34741c72d34a0d6ada3e9d334129d07f.jpg" width="80">
-He/Him.
+  <img src="34741c72d34a0d6ada3e9d334129d07f.jpg" width="400">
+
 
    $\color{Coral}{\text{﹒      about me ..! Spidercore • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .   🕷️   .    ✦    .°  }}$
 <p align="center">
