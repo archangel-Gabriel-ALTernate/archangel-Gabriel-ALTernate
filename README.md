@@ -10,7 +10,7 @@
 
    $\color{Blue}{\text{﹒      about me ..! DUSEKKARRRR • pony town • Marvel nerd • Bipolor Schizophrenia Whew bud pick a struggle! °    ✦    .      .    ✦    .°  }}$
 <p align="center">
-  <img src=Screenshot_2026-08-29_142955-removebg-preview(1).png width="400">
+  <img src=392da6fd272c809f721960c05da9dc43-removebg-preview.png="400">
 </p>
 ------------------------------------------------------------------------------------------------------
 ------------------------✨--°    ✦    .      .    ✦    .°  }}$
