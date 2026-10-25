@@ -68,14 +68,13 @@ Check this out~...<p align="center">
   ─── ✦ ───
 
 <p align="center">
-  <img src=spiderman.gif 300"/>
 </p>
 "Pizzas Here!" :D
 <p align="center">
-  <img src=f713c24a46110e3a564b0f414c74f25b.jpg width="400">
-  <p align="center">
+  <img src=5a7ac2487cf805cfcb20d7ffa41b71eb.jpg width="300"><p align="center">
+  <img src=d76157a9d63aa2dd57071b18d650bd6c.jpgw width="300"><p align="center">
+  <img src=8aba6b84c839482ea99294c304487e29.jpg width="300"><p align="center">
   <img src=5f14b56c146444794a19490e87ee1920.jpg width="300"><p align="center">
   <img src=634f00270887dddb74423135c31ddf02.jpg width="300"><p align="center">
   <img src=d7686fbb631dd9f1e8998480f07505b5.jpg width="200"><p align="center">
   <img src=Screenshot_2026-08-29_142534-removebg-preview.png width="900">
-
