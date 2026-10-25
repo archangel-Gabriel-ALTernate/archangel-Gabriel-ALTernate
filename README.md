@@ -2,7 +2,7 @@
 <p align="left">
   <img src= 90a5659319ffe832e65fbd95460abd46.jpg width="1000">   
 <p align="center">
-  <img src= canvas.png width="1000">
+  <img src= canvas.png width="500">
  
 <p align="center">
   <img src="https://github.com/archangel-Gabriel-ALTernate/archangel-Gabriel-ALTernate/blob/main/pronoun-banner-banner.gif" width="80">
