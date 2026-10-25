@@ -47,7 +47,7 @@ $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
 $\color{Gold}{\text{WHY HELLO! Nice to meet you I'm Gabe or Gabriel! (or peter)}}$
 $\color{RoyalBlue}{\text{Im a Model and i live in NYC i go to NYU Tisch for college for musical theater!}}$
-$\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes my day}}$
+$\color{DarkBlue}{\text{I love cuddles and I love compliments on my cosplay It makes my day}}$
 $\color{LightYellow}{\text{thanks for checking out my page have a great day!}}$
 ---
 <p align="center">
