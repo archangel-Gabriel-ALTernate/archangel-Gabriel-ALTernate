@@ -45,10 +45,10 @@ $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  
   
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
-$\color{Crimson}{\text{WHY HELLO! Nice to meet you I'm Gabe or Gabriel! (or peter)}}$
+$\color{Gold}{\text{WHY HELLO! Nice to meet you I'm Gabe or Gabriel! (or peter)}}$
 $\color{RoyalBlue}{\text{I'm not good with role plays But I'm always comfortable if someone's up for one!}}$
 $\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes my day}}$
-$\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
+$\color{LightYellow}{\text{thanks for checking out my page have a great day!}}$
 ---
 <p align="center">
   <img src=WOPAH.png width="800"/> 
