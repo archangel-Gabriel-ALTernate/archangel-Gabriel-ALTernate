@@ -15,7 +15,7 @@
 ------------------------------------------------------------------------------------------------------
 ------------------------✨--°    ✦    .      .    ✦    .°  }}$
 <p align="center">
-  <img src=9ff134601ca4a176a3499c607893223a.jpg width="200">
+  <img src=fdg.pngwidth="200">
 $\color{Yellow}{\text{.   Daily Bugle Photographer  `  NYC  }}$
 
  $\color{Gold}{\text{ INTERESTS}}$
