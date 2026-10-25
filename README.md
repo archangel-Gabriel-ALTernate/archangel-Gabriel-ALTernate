@@ -57,18 +57,13 @@ $\color{LightYellow}{\text{thanks for checking out my page have a great day!}}$
 <p align="left">
 </p>
 <h1 align="center">✧DUSEKKAR ✧</h1>
-<p align="center">
-  <img src= width="60">
-<p align="center">
 You should smile more twin it looks good on you
 </p>
 Check this out~...<p align="center">
-  <img src=3359827d1e802c5a677e76663d48f39e.jpg width="300"> <p align="center">
-  <img src=3a99a22e3b6d53dd9825982ccabf151f.jpg width="200">
 -__---_..Here are some of my stupid interests AKA thinks you'll probably see me cosplaying in Ponytown
-. The Mandela catalog forsaken Villainous Big history fans such as Napoleonic George Washington (My husband) The House of Puso undercover animators on Tiktok Roblox developers Ultra Kill Luca (the movie) CASEOHHHH MARVEL, SPIDERMAN, X-MEN, DEADPOOL.. :P
+. The Mandela catalog forsakennnn Villainous Big history fans such as Napoleonic George Washington (My husband) The House of Puso undercover animators on Tiktok Roblox developers Ultra Kill Luca (the movie) CASEOHHHH MARVEL, SPIDERMAN, X-MEN, DEADPOOL.. :P
 <p align="center">
-  <img src=0f9f1473fa8603449be6c2435d0c32ad.jpg width="300">
+  <img src=DOOOOMOSEAKER.png width="300">
 
   ─── ✦ ───
 
