@@ -51,7 +51,7 @@ $\color{Gold}{\text{I love cuddles and I love compliments on my cosplay It makes
 $\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
 ---
 <p align="center">
-  <img src=Screenshot_2026-08-29_143000-removebg-preview(1).png width="800"/> 
+  <img src=WOPAH.png width="800"/> 
  
 </p>
 <p align="left">
@@ -59,7 +59,7 @@ $\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
 </p>
 <h1 align="center">✧PETER parker ✧</h1>
 <p align="center">
-  <img src=WOPAH.png width="60">
+  <img src= width="60">
 <p align="center">
 You should smile more twin it looks good on you
 </p>
