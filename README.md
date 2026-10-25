@@ -36,13 +36,12 @@ $\color{RoyalBlue}{\text{you are currently worrying about and realize you overca
  $\color{RoyalBlue}{\text{surrounded by people who love you, and you'll be so glad you kept going i}}$
 $\color{RoyalBlue}{\text{love you REMEMBER each day is a BRAND NEW DAY! <3"}}$  °    ✦    .        .    ✦    .°  }}$
   <p align="center">
-  <img src=Screenshot_2026-08-29_142523-removebg-preview.png width="900">
   <br>
 </p>
   <br>
 </p>
 <p align="center">
-  <img src=Screenshot_2026-08-29_142948-removebg-preview.png width="800">
+  <img src=63ec0c3fc4fbb34bf3dd3c312c3f2d72.jpg width="800">
   
 $\color{SlateGray}{\text{.      °    ✦    .   🕷️   .    ✦    .°  }}$
   ## PROFILE
@@ -60,7 +59,7 @@ $\color{Crimson}{\text{thanks for checking out my page have a great day!}}$
 </p>
 <h1 align="center">✧PETER parker ✧</h1>
 <p align="center">
-  <img src=32a763e3dd01ea405c49136b4d5123d3.jpg  width="60">
+  <img src=WOPAH.png width="60">
 <p align="center">
 You should smile more twin it looks good on you
 </p>
